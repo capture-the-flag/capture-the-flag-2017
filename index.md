@@ -23,7 +23,7 @@ Pick up your WARRIOR SASH at your team's base. They're reversable, wear it with 
 
 ## Wait, what's my team's Battle Cry?
 
-<div style="display:flex">
+<div style="display:flex;flex-wrap:wrap">
 <span style="font-size:100pt;color:red;background-color:black;text-align:center;font-family:Arial Black,Helvetica;font-weight:bold">MAN ALIVE!</span><span style="font-size:100pt;color:SeaGreen;background-color:white;font-family:Copperplate,Times New Roman;text-align:center;font-weight:bold">HOLD SPACE!</span>
 </div>
 
