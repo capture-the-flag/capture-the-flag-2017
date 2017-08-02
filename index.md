@@ -63,7 +63,7 @@ Respect the idea that other people do not necessarily know or care about what yo
 
 ## Rules in Unforseen Circumstances
 
-I guess you'll have to argue about it. Good luck.
+I guess you'll have to argue about it. Good luck. Or you could try raising the game coordinates by shouting! Or maybe radio?
 
 ## Radio
 
