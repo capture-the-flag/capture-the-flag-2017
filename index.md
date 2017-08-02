@@ -1,34 +1,34 @@
-##
 ![Zone Map](images/map.png)
 
-### Markdown
+# Rules
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## How to join
 
-```markdown
-Syntax highlighted code block
+Choose a team. Meet at your team's base by 6pm on Wednesday.
 
-# Header 1
-## Header 2
-### Header 3
+TEMPLE TEAM's base is behind the Temple - that's 12:00 side, towards deep playa. Look for a giant silver, green, and blue flag.
 
-- Bulleted
-- List
+MAN TEAM's base is behind center camp - that's the 6:00 side of Ring Road, with all the murals. Look for a giant red and orange flag.
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+## The objective
 
-[Link](url) and ![Image](src)
-```
+The game is over when someone wins. A team wins when both flags are flying at their base.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+## Active players
 
-### Jekyll Themes
+An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/jes5199/capture-the-flag-2017/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Pick up your WARRIOR SASH at your team's base. They're reversable, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
 
-### Support or Contact
+## Wait, what's my team's Battle Cry?
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+<div style="display:flex">
+<span style="font-size:200pt;color:red;background-color:black">MAN ALIVE!</span><span style="font-size:200pt;color:SeaGreen;background-color:white">HOLD SPACE!</span>
+</div>
+
+## Tagging
+
+## Moving the flag
+
+## Ettiquette and Safety
