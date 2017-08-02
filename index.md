@@ -61,7 +61,11 @@ This is Burning Man. Fire is still hot, heavy things can still fall down, gettin
 
 Don't fucking touch anyone without their permission.
 
+Especially don't fucking touch someone with a giant piece of lumber that has a giant bullshit flag attached to one end.
+
 Respect the idea that other people do not necessarily know or care about what you are trying to do.
+
+If you are trying to interact with an art car in some game-related way, talk to the fucking driver about what you're tring to do. They're in charge of their situation.
 
 ## Rules in Unforseen Circumstances
 
