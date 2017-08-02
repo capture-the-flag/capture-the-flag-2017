@@ -8,9 +8,9 @@ consider reading them
 
 Choose a team. Meet at your team's base by 6pm on Wednesday.
 
-TEMPLE TEAM's base is behind the Temple - that's 12:00 side, towards deep playa. Look for a giant silver, green, and blue flag.
+TEMPLE TEAM's base is behind the Temple - that's 12:00 side, towards deep playa. Look for a giant silver flag.
 
-MAN TEAM's base is behind center camp - that's the 6:00 side of Ring Road, with all the murals. Look for a giant red and orange flag.
+MAN TEAM's base is behind center camp - that's the 6:00 side of Ring Road, with all the murals. Look for a giant red flag.
 
 
 ## The objective
