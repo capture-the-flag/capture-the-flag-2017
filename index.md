@@ -1,3 +1,6 @@
+show_downloads: false
+title: Ritual Warfare: Capture the Flag at Burning Man 2017
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/jes5199/capture-the-flag-2017/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
