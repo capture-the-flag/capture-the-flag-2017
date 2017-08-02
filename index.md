@@ -31,7 +31,7 @@ Pick up your WARRIOR SASH at your team's base. They're reversable, wear it with 
 
 The field of play includes all of Deep Playa between the 10:00 and 2:00 streets, and all of the inner Playa stopping at Esplanade, and only into the City around Center Camp within the circle formed by Rod's Road.
 
-Do not take the fucking flags into the city, we would never find them again. Esplanade is fine, Rod's Road and the area around Center Camp is fine, but only go into Camps within Rod's Road with some concent from the actual human people who are living or working in there.
+Do not take the fucking flags into the city, we would never find them again. Esplanade is fine, Rod's Road and the area around Center Camp is fine, but only go into Camps within Rod's Road with some consent from the actual human people who are living or working in there.
 
 The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being inforced this year.
 
