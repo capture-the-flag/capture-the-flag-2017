@@ -1,6 +1,8 @@
 ![Zone Map](images/map.png)
 
-# Rules
+# HERE ARE THE RULES OF THE GAME
+
+consider reading them
 
 ## How to join
 
@@ -39,7 +41,7 @@ Do not actually try to take the flags into the Temple, into the Man Base, or int
 
 ## Tagging
 
-If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team is close enough to touch you and they declare "TAG!", then you must surrender your WARRIOR SASH to them. Do not actually touch strangers without their permission&emdash; that would be rude.
+If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team is close enough to touch you and they declare "TAG!", then you must surrender your WARRIOR SASH to them. Do not actually touch strangers without their permission&mdash; that would be rude.
 
 You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you.
 
