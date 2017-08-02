@@ -77,4 +77,4 @@ Are we gonna try anyway? Yeah okay.
 * MAN TEAM channel: MURS Channel 2, Subchannel CTCSS 123.0 (also known as subchannel 18 or 3Z)
 * TEMPLE TEAM channel: MURS Channel 3, Subchannel CTCSS 123.0 (also known as subchannel 18 or 3Z)
 
-
+Lots of cheapo radios can monitor two channels at a time. Do the obvious thing.
