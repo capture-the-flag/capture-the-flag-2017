@@ -78,3 +78,11 @@ Are we gonna try anyway? Yeah okay.
 * TEMPLE TEAM channel: MURS Channel 3, Subchannel CTCSS 123.0 (also known as subchannel 18 or 3Z)
 
 Lots of cheapo radios can monitor two channels at a time. Do the obvious thing.
+
+## Is this going to work?
+
+I have no idea. I hope so. I hope we can make enough fucking sashes. I hope people show up. I hope people aren't assholes.
+
+## Um, can I talk to you about all this?
+
+Shit. I guess since I made this website I better take some responsibility. Ok. Email me at jes5199@gmail.com
