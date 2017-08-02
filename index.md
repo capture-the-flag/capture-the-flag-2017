@@ -67,7 +67,7 @@ This is Burning Man. Fire is still hot, heavy things can still fall down, gettin
 
 Don't fucking touch anyone without their permission.
 
-Especially don't fucking touch someone with a giant piece of lumber that has a giant bullshit flag attached to one end.
+Especially don't fucking touch someone with a giant piece of lumber that has a giant bullshit flag attached to one end!
 
 Respect the idea that other people do not necessarily know or care about what you are trying to do.
 
