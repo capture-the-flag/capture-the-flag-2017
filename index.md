@@ -35,13 +35,17 @@ The field of play includes all of Deep Playa between the 10:00 and 2:00 streets,
 
 Do not take the fucking flags into the city, we would never find them again. Esplanade is fine, Rod's Road and the area around Center Camp is fine, but only go into Camps within Rod's Road with some consent from the actual human people who are living or working in there.
 
-The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being inforced this year.
+The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being inforced this year. Inside the Temple and inside Center Camp Cafe are also neutral, and you should be extra respectful of the fact that people in there are doing shit that might be more imporant than playing this game.
 
 Do not actually try to take the flags into the Temple, into the Man Base, or into Center Camp Cafe. Someone would almost certainly yell at us and they're way too big to get in there anyway.
 
 ## Tagging
 
 If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team is close enough to touch you and they declare "TAG!", then you must surrender your WARRIOR SASH to them. Do not actually touch strangers without their permission&mdash; that would be rude.
+
+You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
+
+You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.
 
 You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you.
 
@@ -93,4 +97,8 @@ I have no idea. I hope so. I hope we can make enough fucking sashes. I hope peop
 
 ## Um, can I talk to you about all this?
 
-Shit. I guess since I made this website I better take some responsibility. Ok. Email me at jes5199@gmail.com
+Shit. I guess since we made this website we better take some responsibility. Ok. Email us at jmdolan@gmail.com and/or jes5199@gmail.com
+
+## Who are you people?
+
+So far, it's just Jenn and Jes doing most of the coordination and making the flags and bullshit. We've been burning since 2010, but this idea is brand new.
