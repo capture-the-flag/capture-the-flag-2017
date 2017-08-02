@@ -29,6 +29,12 @@ Pick up your WARRIOR SASH at your team's base. They're reversable, wear it with 
 
 ## Tagging
 
+If you are in the opposing team's ZONE, and an ACTIVE PLAYER FROM THAT TEAM is close enough to touch you and they declare "TAG!", then you must surrender your WARRIOR SASH to them. Do not actually touch strangers without their permission&emdash; that would be rude.
+
+You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you.
+
+If you aren't wearing a sash, you are not ACTIVE, which means that you CANNOT TAG and you CANNOT CARRY THE FLAG.
+
 ## Moving the flag
 
 ## Ettiquette and Safety
