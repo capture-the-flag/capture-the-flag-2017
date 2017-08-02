@@ -69,7 +69,9 @@ If you are trying to interact with an art car in some game-related way, talk to 
 
 ## Rules in Unforseen Circumstances
 
-I guess you'll have to argue about it. Good luck. Or you could try raising the game coordinates by shouting! Or maybe radio?
+I guess you'll have to argue about it. Good luck.
+
+Or you could try raising the game coordinates by shouting! Or maybe radio?
 
 ## Radio
 
