@@ -51,6 +51,8 @@ If you are carrying an extra sash, you can give that extra sash to ANY PERSON WH
 
 The flag is big and heavy and it will generally take more than one person to carry it. You must all be wearing WARRIOR SASHES. Seriously. That's how the game works.
 
+If you are carrying the flag, YOU ARE RESPONSIBLE FOR NOT HURTING ANYONE WITH IT. Seriously! This is heavy fucking object! If there is a human being in your way, you cannot go that way!
+
 If you are tagged while carrying the flag, you must stop carrying it. Set it down carefully if your teammates can't continue to lift it without your help. This means that getting the flag out of the opposing team's zone will be REALLY HARD.
 
 ## Ettiquette and Safety
