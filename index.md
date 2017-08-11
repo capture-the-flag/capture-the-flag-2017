@@ -47,7 +47,7 @@ A tag is a light quick touch on a non-private body part, you fucking tourist. No
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
-You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.
+You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously. (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
 
 You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you.
 
