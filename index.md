@@ -41,7 +41,9 @@ Even though the Temple and Center Camp Cafe are in team zones, their insides are
 
 ## Tagging
 
-If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team is close enough to touch you and they declare "TAG!", then you must surrender your WARRIOR SASH to them. Do not actually touch strangers without their permission&mdash; that would be rude.
+If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touches you and declares "TAG!", then you must surrender your WARRIOR SASH to that player. 
+
+A tag is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend.
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
@@ -51,7 +53,7 @@ You can get a replacement sash from your team's base, or, if your teammate is ca
 
 If you aren't wearing a sash, you are not ACTIVE, which means that you CANNOT TAG and you CANNOT CARRY THE FLAG.
 
-If you are carrying an extra sash, you can give that extra sash to ANY PERSON WHO DOESN'T ALREADY HAVE ONE. SERIOUSLY. ANYBODY.
+If you are carrying an extra sash, you can give that extra sash to ANY PERSON WHO DOESN'T ALREADY HAVE ONE. SERIOUSLY. ANYBODY. You probably want to tell them about the game though.
 
 ## Carrying the flag
 
