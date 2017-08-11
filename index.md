@@ -81,7 +81,7 @@ If you are trying to interact with an art car in some game-related way, talk to 
 
 I guess you'll have to argue about it. Good luck.
 
-Or you could try raising the game coordinates by shouting! Or maybe radio?
+Or you could try raising the game coordinators by shouting! Or maybe radio?
 
 ## Radio
 
