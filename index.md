@@ -63,7 +63,7 @@ If you are carrying the flag, YOU ARE RESPONSIBLE FOR NOT HURTING ANYONE WITH IT
 
 If you are tagged while carrying the flag, you must stop carrying it. Set it down carefully if your teammates can't continue to lift it without your help. This means that getting the flag out of the opposing team's zone will be REALLY HARD.
 
-I know you want to take the flag on an art car, I KNOW, I want to do that too. But we can't, because then people will need to try to tag us, and then maybe they will die. Don't take the flag on an art car. I'm sorry.
+I know you want to take the flag on an art car, I KNOW, I want to do that too. But we can't, because then people will try to tag us, and then maybe they will die. Don't take the flag on an art car. I'm sorry.
 
 ## Etiquette and Safety
 
