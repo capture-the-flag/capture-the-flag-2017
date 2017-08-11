@@ -21,7 +21,7 @@ The game is over when someone wins. A team wins when both flags are flying at th
 
 An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on.
 
-Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously. (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
+Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
 
 ## Wait, what's my team's Battle Cry?
 
@@ -47,7 +47,7 @@ A TAG is a light quick touch on a non-private body part, you fucking tourist. No
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
-You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.
+You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.  (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
 
 If you're in an art car, you can only tag or be tagged by somebody inside that same art car.
 
