@@ -104,6 +104,10 @@ Lots of cheapo radios can monitor two channels at a time. Do the obvious thing.
 
 I have no idea. I hope so. I hope we can make enough fucking sashes. I hope people show up. I hope people aren't assholes.
 
+## I want my friends to play too!
+
+oh thank bog. okay. You've picked a team? send your friends to either <a href="http://ritualwarfare.men">ritualwarfare.men</a> or <a href="http://ritualwarfare.space">ritualwarefare.space</a> for recruitment. Yeah I know those domain names are really dumb, it's what I could get for 99&cent;
+
 ## Um, can I talk to you about all this?
 
 Shit. I guess since we made this website we better take some responsibility. Ok. Email us at jmdolan@gmail.com and/or jes5199@gmail.com
