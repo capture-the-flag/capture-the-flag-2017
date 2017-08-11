@@ -16,7 +16,9 @@ MAN TEAM's base is behind center camp - that's the 6:00 side of Ring Road, with 
 
 At your team's base, your FEARLESS LEADER will shout at you through a megaphone. You'll get a warrior sash. We'll go over the rules for people who haven't read them, which will be, like, everybody. We will recite each other poetry about what the Man/Temple means to us. You probably should write some.
 
-A little before sunset, both teams will pick up their flags and head for the neutral zone. (Read on to find out where that is!) 
+A little before sunset, both teams will pick up their flags and head for the neutral zone. Read on to find out where that is! From their own sides of the neutral zone, the opposing armies will face off and wave their flags at each other and assume the warlike postures of their choosing. When the sun goes down, the game is on.  
+
+Will it be an immediate clusterfuck as both teams scramble to hide their flags with the other team in hot pursuit? Oh yes. Oh yes it will.
 
 ## The objective
 
