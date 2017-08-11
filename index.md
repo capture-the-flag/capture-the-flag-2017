@@ -42,7 +42,7 @@ The field of play includes all of Deep Playa between the 10:00 and 2:00 streets,
 
 Do not take the fucking flags into the city, we would never find them again. Esplanade is fine, Rod's Road and the area around Center Camp is fine, but only go into Camps within Rod's Road with some consent from the actual human people who are living or working in there.
 
-The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being enforced this year. 
+The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man perimeter that's being enforced this year. 
 
 Even though the Temple and Center Camp Cafe are in team zones, their insides are not part of the game. People in there are doing shit that might be more important than what we are doing. Do not actually try to take the flags into the Temple or Center Camp Cafe, or the Man Base either. Someone would almost certainly yell at us and they're way too big to get in there anyway. 
 
