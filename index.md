@@ -41,15 +41,17 @@ Even though the Temple and Center Camp Cafe are in team zones, their insides are
 
 ## Tagging
 
-If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touches you and declares "TAG!", then you must surrender your WARRIOR SASH to that player. 
+If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touches you and declares "TAG!", then you must surrender your WARRIOR SASH to that player. You can't be tagged inside your own zone.
 
-A tag is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
+A TAG is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
-You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously. 
+You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.
 
-You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you. 
+If you're in an art car, you can only tag or be tagged by somebody inside that same art car.
+
+You can get a replacement warrior sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you. 
 
 If you aren't wearing a sash, you are not ACTIVE, which means that you CANNOT TAG and you CANNOT CARRY THE FLAG.
 
@@ -63,21 +65,15 @@ If you are carrying the flag, YOU ARE RESPONSIBLE FOR NOT HURTING ANYONE WITH IT
 
 If you are tagged while carrying the flag, you must stop carrying it. Set it down carefully if your teammates can't continue to lift it without your help. This means that getting the flag out of the opposing team's zone will be REALLY HARD.
 
-I know you want to take the flag on an art car, I KNOW, I want to do that too. But we can't, because then people will try to tag us, and then maybe they will die. Don't take the flag on an art car. I'm sorry.
+I know you want to take the flag on an art car, I KNOW, I want to do that too. But we can't, because then people on foot will try to get the flag, and then they will probably die. Don't take the flag on an art car. I'm sorry.
 
 ## Etiquette and Safety
 
 This is Burning Man. Fire is still hot, heavy things can still fall down, getting hit by a vehicle is still unpleasant. Even if it looks like a tiny floating island. 
 
-Don't fucking touch anyone without their permission.
-
-Especially don't fucking touch someone with a giant piece of lumber that has a giant bullshit flag attached to one end!
-
 Respect the idea that other people do not necessarily know or care about what you are trying to do.
 
-If you are trying to interact with an art car in some game-related way, talk to the fucking driver about what you're tring to do. They're in charge of their situation.
-
-## Rules in Unforseen Circumstances
+## Rules in Unforeseen Circumstances
 
 I guess you'll have to argue about it. Good luck.
 
