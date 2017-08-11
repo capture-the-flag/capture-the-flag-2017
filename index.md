@@ -52,6 +52,8 @@ If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touc
 
 A TAG is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS EVER, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
 
+When you tag someone, they will give you their sash. You can only carry two captured sashes! If you are carrying two sashes, you can't tag anybody else until you give away at least one of them! But, if you are carrying an extra sash, you can give that extra sash to ANY PERSON. SERIOUSLY. ANYBODY. You might want to tell them about the game though. (hopefully they'll join _your_ team)
+
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
 You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously.  (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
@@ -62,7 +64,6 @@ You can get a replacement warrior sash from your team's base, or, if your teamma
 
 If you aren't wearing a sash, you are not ACTIVE, which means that you CANNOT TAG and you CANNOT CARRY THE FLAG.
 
-If you are carrying an extra sash, you can give that extra sash to ANY PERSON. SERIOUSLY. ANYBODY. You might want to tell them about the game though.
 
 ## Carrying the flag
 
