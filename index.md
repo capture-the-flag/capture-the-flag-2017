@@ -21,7 +21,7 @@ The game is over when someone wins. A team wins when both flags are flying at th
 
 An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on.
 
-Pick up your WARRIOR SASH at your team's base. They're reversable, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
+Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
 
 ## Wait, what's my team's Battle Cry?
 
@@ -35,9 +35,9 @@ The field of play includes all of Deep Playa between the 10:00 and 2:00 streets,
 
 Do not take the fucking flags into the city, we would never find them again. Esplanade is fine, Rod's Road and the area around Center Camp is fine, but only go into Camps within Rod's Road with some consent from the actual human people who are living or working in there.
 
-The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being inforced this year. Inside the Temple and inside Center Camp Cafe are also neutral, and you should be extra respectful of the fact that people in there are doing shit that might be more imporant than playing this game.
+The field is divided into two TEAM ZONES with a small NEUTRAL ZONE dividing them. The neutral zone includes all of the 9:00 and 3:00 roads between the lantern spires, and all of the space immediately surrounding the Man within whatever Man permimeter that's being enforced this year. 
 
-Do not actually try to take the flags into the Temple, into the Man Base, or into Center Camp Cafe. Someone would almost certainly yell at us and they're way too big to get in there anyway.
+Even though the Temple and Center Camp Cafe are in team zones, their insides are not part of the game. People in there are doing shit that might be more important than what we are doing. Do not actually try to take the flags into the Temple or Center Camp Cafe, or the Man Base either. Someone would almost certainly yell at us and they're way too big to get in there anyway. 
 
 ## Tagging
 
