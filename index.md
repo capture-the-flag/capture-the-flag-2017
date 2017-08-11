@@ -73,7 +73,7 @@ This is Burning Man. Fire is still hot, heavy things can still fall down, gettin
 
 Respect the idea that other people do not necessarily know or care about what you are trying to do.
 
-We don't actually have any etiquette and safety advice for you, though. Try to have some of both?
+We're out of advice about etiquette and safety, though. Try to have some of both?
 
 ## Rules in Unforeseen Circumstances
 
