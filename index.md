@@ -12,6 +12,11 @@ TEMPLE TEAM's base is behind the Temple - that's 12:00 side, towards deep playa.
 
 MAN TEAM's base is behind center camp - that's the 6:00 side of Ring Road, with all the murals. Look for a giant red flag.
 
+## Then what?
+
+At your team's base, your FEARLESS LEADER will shout at you through a megaphone. You'll get a warrior sash. We'll go over the rules for people who haven't read them, which will be, like, everybody. We will recite each other poetry about what the Man/Temple means to us. You probably should write some.
+
+A little before sunset, both teams will pick up their flags and head for the neutral zone. (Read on to find out where that is!) 
 
 ## The objective
 
@@ -19,7 +24,7 @@ The game is over when someone wins. A team wins when both flags are flying at th
 
 ## Active players
 
-An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on.
+An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on. Players will also have no idea what's going on, but in a different way.
 
 Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
 
