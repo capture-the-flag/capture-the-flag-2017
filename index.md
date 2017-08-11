@@ -22,7 +22,7 @@ Will it be an immediate clusterfuck as both teams scramble to hide their flags w
 
 ## The objective
 
-The game is over when someone wins. A team wins when both flags are flying at their base.
+The game is over when someone wins. A team wins when BOTH FLAGS are flying at their base.
 
 ## Active players
 
