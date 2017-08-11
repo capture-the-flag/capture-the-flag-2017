@@ -21,7 +21,7 @@ The game is over when someone wins. A team wins when both flags are flying at th
 
 An active player must be wearing a WARRIOR SASH. This distinguishes players from the thousands of other participants that have no idea what the hell is going on.
 
-Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously.
+Pick up your WARRIOR SASH at your team's base. They're reversible, wear it with YOUR TEAM's BATTLE CRY facing out, obviously. (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
 
 ## Wait, what's my team's Battle Cry?
 
