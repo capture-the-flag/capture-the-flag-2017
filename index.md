@@ -43,29 +43,31 @@ Even though the Temple and Center Camp Cafe are in team zones, their insides are
 
 If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touches you and declares "TAG!", then you must surrender your WARRIOR SASH to that player. 
 
-A tag is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend.
+A tag is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
-You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously. (If somehow you find yourself playing this game outside the trash fence, be sure to say hi to Grover, Danimal, and the rest of the friendly Perimeter crew, I'm sure they'd love to know what you're up to.)
+You also cannot tag or be tagged outside the field of play - not in most of the city, and not outside of the Burning Man Event. Obviously. 
 
-You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you.
+You can get a replacement sash from your team's base, or, if your teammate is carrying one that they've captured, they can give it to you. 
 
 If you aren't wearing a sash, you are not ACTIVE, which means that you CANNOT TAG and you CANNOT CARRY THE FLAG.
 
-If you are carrying an extra sash, you can give that extra sash to ANY PERSON WHO DOESN'T ALREADY HAVE ONE. SERIOUSLY. ANYBODY. You probably want to tell them about the game though.
+If you are carrying an extra sash, you can give that extra sash to ANY PERSON. SERIOUSLY. ANYBODY. You might want to tell them about the game though.
 
 ## Carrying the flag
 
-The flag is big and heavy and it will generally take more than one person to carry it. You must all be wearing WARRIOR SASHES. Seriously. That's how the game works.
+The flag is big and heavy and it will generally take more than one person to carry it. You must all be wearing WARRIOR SASHES. Seriously. That's how the game works. Ritual is a function of belief, and if you want the ritual of this game to work right you'd best believe you cannot touch that flag without a sash.
 
-If you are carrying the flag, YOU ARE RESPONSIBLE FOR NOT HURTING ANYONE WITH IT. Seriously! This is heavy fucking object! If there is a human being in your way, you cannot go that way!
+If you are carrying the flag, YOU ARE RESPONSIBLE FOR NOT HURTING ANYONE WITH IT. Seriously! This is heavy fucking object with significant leverage! If there is a human being in your way, you cannot go that way!
 
 If you are tagged while carrying the flag, you must stop carrying it. Set it down carefully if your teammates can't continue to lift it without your help. This means that getting the flag out of the opposing team's zone will be REALLY HARD.
 
-## Ettiquette and Safety
+I know you want to take the flag on an art car, I KNOW, I want to do that too. But we can't, because then people will need to try to tag us, and then maybe they will die. Don't take the flag on an art car. I'm sorry.
 
-This is Burning Man. Fire is still hot, heavy things can still fall down, getting hit by a vehicle is still unpleasant.
+## Etiquette and Safety
+
+This is Burning Man. Fire is still hot, heavy things can still fall down, getting hit by a vehicle is still unpleasant. Even if it looks like a tiny floating island. 
 
 Don't fucking touch anyone without their permission.
 
