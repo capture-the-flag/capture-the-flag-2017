@@ -50,7 +50,7 @@ Even though the Temple and Center Camp Cafe are in team zones, their insides are
 
 If you are in the opposing team's ZONE, and an ACTIVE PLAYER from that team touches you and declares "TAG!", then you must surrender your WARRIOR SASH to that player. You can't be tagged inside your own zone.
 
-A TAG is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
+A TAG is a light quick touch on a non-private body part, you fucking tourist. No tackles, no hitting, no grabbing, no groping, no nonconsensual hugs, NO NONCONSENSUAL HUGS EVER, no long weird caresses. Not unless the person you're tagging is that kind of friend. 
 
 You cannot tag or be tagged in the neutral zone, or in the Temple or Center Camp Cafe.
 
