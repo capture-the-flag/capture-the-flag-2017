@@ -107,7 +107,7 @@ I have no idea. I hope so. I hope we can make enough fucking sashes. I hope peop
 
 ## I want my friends to play too!
 
-oh thank bog. okay. You've picked a team? send your friends to either <a href="http://ritualwarfare.men">ritualwarfare.men</a> or <a href="http://ritualwarfare.space">ritualwarefare.space</a> for recruitment. Yeah I know those domain names are really dumb, it's what I could get for 99&cent;
+oh thank bog. okay. You've picked a team? send your friends to either <a href="http://ritualwarfare.men">ritualwarfare.men</a> or <a href="http://ritualwarfare.space">ritualwarfare.space</a> for recruitment. Yeah I know those domain names are really dumb, it's what I could get for 99&cent;
 
 ## Um, can I talk to you about all this?
 
